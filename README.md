@@ -1,0 +1,1 @@
+# IS-32_Reznik_Dmytro_lab1
